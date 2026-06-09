@@ -1,4 +1,4 @@
-# 
+# Código aberto WinRAR fluxo de trabalho para Mac OS | Top WinRAR fluxo de trabalho para PC Windows. Com limpeza de lixeira e sistema de plugins — otimizado para máximo desempenho em cada plataforma.
 
 
 
